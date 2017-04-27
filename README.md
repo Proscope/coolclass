@@ -1,1 +1,1 @@
-# coolclass
+Destiny 2 will be amazing!
